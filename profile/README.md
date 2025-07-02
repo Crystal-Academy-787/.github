@@ -40,7 +40,7 @@ One of Crystal Academy's standout features is its vibrant community. The Discord
 
 ---
 
-[Join Crystal Academy Now to Access Live Trading Sessions and Expert Guidance](https://kelexbawz.com/crystal-academy)
+[Join Crystal Academy Now to Access Live Trading Sessions and Expert Guidance](https://whop.com/crystal-academy?a=kelechienwere1234)
 
 ---
 
@@ -82,7 +82,7 @@ The premium membership provides comprehensive resources for those serious about 
 
 ---
 
-[Join Crystal Academy Now to Unlock Premium Trading Resources](https://kelexbawz.com/crystal-academy)
+[Join Crystal Academy Now to Unlock Premium Trading Resources](https://whop.com/crystal-academy?a=kelechienwere1234)
 
 ---
 
@@ -120,7 +120,7 @@ The academy continually updates its courses and hosts regular webinars, ensuring
 
 ---
 
-[Join Crystal Academy Now to Enhance Your Trading Skills](https://kelexbawz.com/crystal-academy)
+[Join Crystal Academy Now to Enhance Your Trading Skills](https://whop.com/crystal-academy?a=kelechienwere1234)
 
 ---
 
@@ -150,7 +150,7 @@ User feedback highlights the community's effectiveness and supportive environmen
 
 ---
 
-[Join Crystal Academy Now to Become Part of a Thriving Trading Community](https://kelexbawz.com/crystal-academy)
+[Join Crystal Academy Now to Become Part of a Thriving Trading Community](https://whop.com/crystal-academy?a=kelechienwere1234)
 
 ---
 
@@ -160,6 +160,6 @@ Crystal Academy stands out as a comprehensive trading education platform that ba
 
 ---
 
-[Join Crystal Academy Now to Start Your Trading Journey](https://kelexbawz.com/crystal-academy)
+[Join Crystal Academy Now to Start Your Trading Journey](https://whop.com/crystal-academy?a=kelechienwere1234)
 
 ---
